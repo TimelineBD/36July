@@ -1,9 +1,5 @@
 
-## Screenshots
-
 ![App Screenshot](https://github.com/bloodcanvas/36July/blob/main/HERO.png?raw=true)
-
-
 
 # ভূমিকা
 
