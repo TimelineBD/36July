@@ -1,4 +1,9 @@
-![App Screenshot]([https://via.placeholder.com/468x300?text=App+Screenshot+Here](https://github.com/bloodcanvas/36July/blob/main/HERO.png?raw=true)
+
+## Screenshots
+
+![App Screenshot](https://github.com/bloodcanvas/36July/blob/main/HERO.png?raw=true)
+
+
 
 # ভূমিকা
 
