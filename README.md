@@ -611,7 +611,7 @@
 
 ### সংশ্লিষ্ট লিঙ্ক
 - [27 killed in countrywide protest clashes](https://en.prothomalo.com/bangladesh/ma68xybnne)
-- [Nationwide curfew in Bangladesh as deadly protests over government jobs escalate | CBC News](https://www.cbc.ca/news/world/bangladesh-jobs-protests-telecoms-cut-1.7268940)
+- [Nationwide curfew in Bangladesh as deadly protests over government jobs escalate CBC News](https://www.cbc.ca/news/world/bangladesh-jobs-protests-telecoms-cut-1.7268940)
 - [কোটা আন্দোলন : দিনভর সংঘাত ও সহিংসতায় রক্তাক্ত ঢাকা - BBC News বাংলা](https://www.bbc.com/bengali/articles/c03l9y8ynl5o)
 - [National curfew imposed in Bangladesh after student protesters storm prison](https://www.theguardian.com/world/article/2024/jul/19/bangladesh-imposes-communications-blackout-as-protest-violence-continues)
 - [কোটা আন্দোলন: ছেলের জন্য পাত্রী দেখতে গিয়েছিলেন, এসে শুনলেন ছেলে নেই - BBC News বাংলা](https://www.bbc.com/bengali/articles/c51yv1w09n7o)
