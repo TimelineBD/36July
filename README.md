@@ -313,6 +313,7 @@
 
 - [বাংলা ব্লকেড: শিক্ষার্থীদের রেলপথ অবরোধ, ঢাকা থেকে সারাদেশে ট্রেন চলাচল বন্ধ](https://mzamin.com/news.php?news=118002)
 
+<br>
 
 ## 🗓️ ১১ জুলাই | বৃহস্পতিবার
 
@@ -571,7 +572,7 @@
 - [যে কারণে বাংলাদেশের কোটা সংস্কার আন্দোলনের খবর নেই ভারতের মিডিয়ায় - BBC News বাংলা](https://www.bbc.com/bengali/articles/c4ngkd3v748o)
 - [Video](https://www.facebook.com/MISTiansdiary.bd/videos/2430781907125430/?__cft__[0]=AZVP7JCgHw-oEPjWT37du5S2fVJYSOafkmKVO1waBVaNqi7f_LOwOkO-KflOlVyCn9ZV2quxgTxO4sF3a_v1Kvaeuig51gFXN3HZuwSF2mbbr5mQ511jjN_nmPMg76uWF0JKfmhSCvZ109T4muIbb5Qbxtq5MjgyKZGjUdbC0w1a3jpEDwEMuHAHoG2lBeYpawTMdtxm-PCBeLvzzSz8K-d_Fxb97jKC--Zb-QAYqylA7g&__tn__=%2CO%2CP-y-R)
 - [Palak blames social media for student deaths](https://www.thedailystar.net/tech-startup/news/palak-blames-social-media-student-deaths-3659606)
-- [Bangladesh has erupted over jobs reserved for the children of 'freedom fighters.' Here's what you need to know | CNN](https://edition.cnn.com/2024/07/19/asia/bangladesh-job-quota-protests-explainer-intl-hnk/index.html)
+- [Bangladesh has erupted over jobs reserved for the children of 'freedom fighters.' Here's what you need to know CNN](https://edition.cnn.com/2024/07/19/asia/bangladesh-job-quota-protests-explainer-intl-hnk/index.html)
 - [Explainer: Why are Bangladesh students protesting against job quotas?](https://www.reuters.com/world/asia-pacific/why-are-bangladesh-students-protesting-against-job-quotas-2024-07-18/)
 - [Quota Reform Protests: Student associations in Australia, Canada, Hungary, and India stand in solidarity](https://www.thedailystar.net/campus/campus/news/quota-reform-protests-student-associations-australia-canada-hungary-and-india-stand-solidarity-3659826)
 - [Law enforcers killing protesters indiscriminately, says Rizvi](https://www.daily-sun.com/post/758328)
