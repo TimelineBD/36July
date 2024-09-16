@@ -397,7 +397,7 @@
 ### সংশ্লিষ্ট লিঙ্ক
 - [The 'Razakar' Back and Forth: Who Said What?](https://www.thedailystar.net/news/bangladesh/news/the-razakar-back-and-forth-who-said-what-3657341)
 
-- [চীন সফর নিয়ে প্রধানমন্ত্রীর সংবাদ সম্মেলন (পুরো অংশ) |Sheikh Hasina Press Conference on China Visit](https://www.youtube.com/watch?v=zdxefYl8Css&t=1284s)
+- [চীন সফর নিয়ে প্রধানমন্ত্রীর সংবাদ সম্মেলন (পুরো অংশ) Sheikh Hasina Press Conference on China Visit](https://www.youtube.com/watch?v=zdxefYl8Css&t=1284s)
 
 
 <br>
@@ -824,7 +824,7 @@
 
 ### সংশ্লিষ্ট লিঙ্ক
 - [Bangladesh authorities detain student protest leaders in hospital](https://www.aljazeera.com/news/2024/7/27/bangladesh-authorities-detain-student-protest-leaders-in-hospital)
-- [Thank you so much Netri | By রাজাকার | Facebook](https://www.facebook.com/Dramaaaaaaa/videos/1032043884950957/?__cft__[0]=AZXSR-f-9d-2zjkrbhRXwzpYKxsIJ6kjFso2Xak8-Z9vOMoBzDg41Ee8MdijZwwCeLIoZRS0OCJ9aPrpbjbr0YX0TJyqpKQa_G3h5iDTNkuxFFSNyoc4n6mG92dc1GXP9SvXllz_cRwDeIIuMMjkcBtsfOVQhc5rHNX5iDpsDLFibzvRrGJWMwoTGwhxXfP9XJPRcrsPFvXcUTXQBtSXnjHInTX7vvIhvYnXszRROT0BqQ&__tn__=%2CO%2CP-y-R)
+- [Thank you so much Netri By রাজাকার Facebook](https://www.facebook.com/watch/?v=1032043884950957)
 - [কোটা আন্দোলনের আসিফ, নাহিদ ও বাকেরকে 'নিরাপত্তার কারণে' নিয়ে গেছে ডিবি - BBC News বাংলা](https://www.bbc.com/bengali/articles/cne4r121n21o)
 - [কোটা আন্দোলন: বাংলাদেশের শিক্ষার্থীদের সাথে 'সংহতি' জানালো কলকাতার ছাত্রছাত্রীরা - BBC News বাংলা](https://www.bbc.com/bengali/articles/ce78k2r2r8go)
 - [Will treat the injured, punish the criminals: PM Sheikh Hasina](https://www.albd.org/articles/news/41498/Will-treat-the-injured,-punish-the-criminals:-PM-Sheikh-Hasina)
@@ -937,7 +937,7 @@
 
 ### সংশ্লিষ্ট লিঙ্ক
 - [Briefing by Awami leader to attack the student protest](https://www.dailymotion.com/video/k6zk0ZkI2PCnBlBjVpE)
-- [সমন্বয়কদের সঙ্গে দেখা করতে গিয়ে যা বললেন সোহেল তাজ | Sohel Taj | DB Harun | Channel 24](https://www.youtube.com/watch?v=S9IC77fvkPU)
+- [সমন্বয়কদের সঙ্গে দেখা করতে গিয়ে যা বললেন সোহেল তাজ Sohel Taj DB Harun Channel 24](https://www.youtube.com/watch?v=S9IC77fvkPU)
 
 
 <br>
@@ -1058,14 +1058,14 @@
 - ["কোনো ভুল হয়ে থাকলে তরুণ প্রজন্মের কাছে ক্ষমা চাই: প্রতিমন্ত্রী পলক"](https://www.prothomalo.com/bangladesh/0ysxnompk0)
 - [মিরপুর ডিওএইচএসে অবসরপ্রাপ্ত সামরিক কর্মকর্তা ও পরিবারের সদস্যদের গণমিছিল](https://www.prothomalo.com/bangladesh/qxc7wx9itb)
 - [Killing FB Thread](https://www.facebook.com/Dr.Mimmi/posts/pfbid0bj8L6DS21nhW83PugUWVorQ1B4EmdsPC5F6Wuj8kUuEgWKpbZUScjZZny4SGJSURl?__cft__[0]=AZXTspIpeKSh4suyIv62gNi7yfpk4KXFg4BjT3vLjtD_vUtIFBnnU1iWMbeKFtzhFqYJlpH_tjNgPsHMKXRLL69JsolGBDfuinb3277onF2trbr2u1s1ocLZLOGCstqWtt52ZD3Zp1ANiBIJgTW-oxFz0Z8DmaOIqCMEZAx24NN6DPqWKGxMNTI3kMNzAifpB2hEIiRi8mWARoZUY_XypSQ77-inBcjCIyNVolQLHm8bUQ&__tn__=%2CO%2CP-y-R)
-- ['ছাত্রদের পাশে এখন অভিভাবকেরা আছেন'](https://www.prothomalo.com/bangladesh/district/391yypbbaj)
+- [ছাত্রদের পাশে এখন অভিভাবকেরা আছেন](https://www.prothomalo.com/bangladesh/district/391yypbbaj)
 - [হবিগঞ্জে আন্দোলনকারীদের সঙ্গে পুলিশ-ছাত্রলীগের সংঘর্ষে যুবক নিহত](https://www.tbsnews.net/bangla/%E0%A6%AC%E0%A6%BE%E0%A6%82%E0%A6%B2%E0%A6%BE%E0%A6%A6%E0%A7%87%E0%A6%B6/news-details-239181)
-- [4:10 pm 02.08.2024 Under Dhaka University Metro Station | By MinhajFacebook](https://www.facebook.com/mdminhajur.rahman.144/videos/3777155762570195/?__cft__[0]=AZWX9hnu13U_s6n3uH7x9ghzacXMA6WLH66yskOmjEER9CTgzW9UxVVIdis8yOJ4FVScqFBe-KCTug3VBGz2N2DSR5AGadfyJpcbZ9PAmz6FMCvmWRpfZdpLq1RTOiah6ZFJWIlx5qbLtO3_USV6S-dGS5gXmbj3JnlbkvPEDCIjA_bImuq7Na5d5SxAQTa-v1k&__tn__=%2CO%2CP-y-R)
-- [উত্তাল শাবি চলছে ধাওয়া পাল্টা ধাওয়া! | By Shyamal SylhetFacebook](https://www.facebook.com/watch/live/?ref=watch_permalink&v=466440346282055)
+- [4:10 pm 02.08.2024 Under Dhaka University Metro Station By MinhajFacebook](https://www.facebook.com/mdminhajur.rahman.144/videos/3777155762570195/?__cft__[0]=AZWX9hnu13U_s6n3uH7x9ghzacXMA6WLH66yskOmjEER9CTgzW9UxVVIdis8yOJ4FVScqFBe-KCTug3VBGz2N2DSR5AGadfyJpcbZ9PAmz6FMCvmWRpfZdpLq1RTOiah6ZFJWIlx5qbLtO3_USV6S-dGS5gXmbj3JnlbkvPEDCIjA_bImuq7Na5d5SxAQTa-v1k&__tn__=%2CO%2CP-y-R)
+- [উত্তাল শাবি চলছে ধাওয়া পাল্টা ধাওয়া! By Shyamal SylhetFacebook](https://www.facebook.com/watch/live/?ref=watch_permalink&v=466440346282055)
 - [x.com post](https://x.com/i/status/1819344685824934051)
 - [উত্তরায় পুলিশের সঙ্গে আন্দোলনরত শিক্ষার্থীদের সংঘর্ষ](https://www.tbsnews.net/bangla/%E0%A6%AC%E0%A6%BE%E0%A6%82%E0%A6%B2%E0%A6%BE%E0%A6%A6%E0%A7%87%E0%A6%B7/news-details-239171)
 - [চট্টগ্রামে শিক্ষার্থীদের সমর্থনে অভিভাবকদের সমাবেশ](https://www.tbsnews.net/bangla/%E0%A6%AC%E0%A6%BE%E0%A6%82%E0%A6%B2%E0%A6%BE%E0%A6%A6%E0%A7%87%E0%A6%B7/news-details-239216)
-- ["শিশুকে পুলিশ সদস্যের বুকে জড়িয়ে ছবি ভাইরাল (thedailycampus.com)"](https://thedailycampus.com/national/148790/%E0%A6%B6%E0%A6%BF%E0%A6%B7%E0%A7%81%E0%A6%95%E0%A7%87-%E0%A6%AA%E0%A7%81%E0%A6%B2%E0%A6%BF%E0%A6%B7-%E0%A6%B8%E0%A6%A6%E0%A6%B8%E0%A7%8D%E0%A6%AF%E0%A7%87%E0%A6%B0-%E0%A6%AC%E0%A7%81%E0%A6%95%E0%A7%87-%E0%A6%9C%E0%A7%9C%E0%A6%BF%E0%A7%9F%E0%A7%87-%E0%A6%9B%E0%A6%AC%E0%A6%BF-%E0%A6%AD%E0%A6%BE%E0%A6%87%E0%A6%B0%E0%A6%BE%E0%A6%B2)
+- [শিশুকে পুলিশ সদস্যের বুকে জড়িয়ে ছবি ভাইরাল](https://thedailycampus.com/national/148790/%E0%A6%B6%E0%A6%BF%E0%A6%B7%E0%A7%81%E0%A6%95%E0%A7%87-%E0%A6%AA%E0%A7%81%E0%A6%B2%E0%A6%BF%E0%A6%B7-%E0%A6%B8%E0%A6%A6%E0%A6%B8%E0%A7%8D%E0%A6%AF%E0%A7%87%E0%A6%B0-%E0%A6%AC%E0%A7%81%E0%A6%95%E0%A7%87-%E0%A6%9C%E0%A7%9C%E0%A6%BF%E0%A7%9F%E0%A7%87-%E0%A6%9B%E0%A6%AC%E0%A6%BF-%E0%A6%AD%E0%A6%BE%E0%A6%87%E0%A6%B0%E0%A6%BE%E0%A6%B2)
 
 <br>
 
