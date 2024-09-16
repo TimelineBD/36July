@@ -1,5 +1,5 @@
 
-![App Screenshot](https://github.com/bloodcanvas/36July/blob/main/HERO.png?raw=true)
+![](https://github.com/TimelineBD/36July/blob/main/Image/Hero2.png?raw=true)
 
 ## ভূমিকা
 
@@ -77,6 +77,7 @@
 - [Archive: Prothom Alo Video on Quota Movement](https://web.archive.org/web/20240702010708/https://www.prothomalo.com/video/bangladesh/sfetl80osw)
 - [Archive: Bangla News 24 Chittagong News](https://web.archive.org/web/20240702162458/https://www.banglanews24.com/daily-chittagong/news/bd/1357108.details)
 
+![Image](https://github.com/TimelineBD/36July/blob/main/Image/1%20July.png?raw=true)
 
 <br>
 
@@ -146,6 +147,7 @@
 - [Archive: Kaler Kantho First Page](https://web.archive.org/web/20240704010708/https://www.kalerkantho.com/print-edition/first-page/2024/07/04/1403125)
 - [Archive: Mzamin News](https://web.archive.org/web/20240702162458/https://mzamin.com/news.php?news=117044)
 
+![Road image for 4 July](https://github.com/TimelineBD/36July/blob/main/Image/4%20July.png?raw=true)
 
 <br>
 
@@ -157,6 +159,8 @@
 ### সংশ্লিষ্ট লিঙ্ক
 - [কোটা বাতিল না হওয়া পর্যন্ত আন্দোলন চালিয়ে যাওয়ার ঘোষণা জাবি শিক্ষার্থীদের](https://www.channel24bd.tv/national/article/219433/%E0%A6%AC%E0%A7%88%E0%A6%B7%E0%A6%AE%E0%A7%8D%E0%A6%AF%E0%A6%AE%E0%A7%82%E0%A6%B2%E0%A6%95-%E0%A6%95%E0%A7%8B%E0%A6%9F%E0%A6%BE-%E0%A6%AA%E0%A6%A6%E0%A7%8D%E0%A6%A7%E0%A6%A4%E0%A6%BF-%E0%A6%AC%E0%A6%BE%E0%A6%A4%E0%A6%BF%E0%A6%B2-%E0%A6%A8%E0%A6%BE-%E0%A6%B9%E0%A6%93%E0%A7%9F%E0%A6%BE-%E0%A6%AA%E0%A6%B0%E0%A7%8D%E0%A6%AF%E0%A6%A8%E0%A7%8D%E0%A6%A4-%E0%A6%86%E0%A6%A8%E0%A7%8D%E0%A6%A6%E0%A7%8B%E0%A6%B2%E0%A6%A8-%E0%A6%9A%E0%A6%B2%E0%A6%AC%E0%A7%87-%E0%A6%9C%E0%A6%BE%E0%A6%AC%E0%A6%BF-%E0%A6%B6%E0%A6%BF%E0%A6%95%E0%A7%8D%E0%A6%B7%E0%A6%BE%E0%A6%B0%E0%A7%8D%E0%A6%A5%E0%A7%80%E0%A6%A6%E0%A7%87%E0%A6%B0-%E0%A6%B9%E0%A7%81%E0%A6%81%E0%A6%B7%E0%A6%BF%E0%A7%9F%E0%A6%BE%E0%A6%B0%E0%A6%BF)
 - [Archive: Mzamin News](https://web.archive.org/web/20240702010708/https://mzamin.com/news.php?news=117172)
+
+![Image](https://github.com/TimelineBD/36July/blob/main/Image/5%20July.png?raw=true)
 
 <br>
 
@@ -577,6 +581,7 @@
 - [Quota Reform Protests: Student associations in Australia, Canada, Hungary, and India stand in solidarity](https://www.thedailystar.net/campus/campus/news/quota-reform-protests-student-associations-australia-canada-hungary-and-india-stand-solidarity-3659826)
 - [Law enforcers killing protesters indiscriminately, says Rizvi](https://www.daily-sun.com/post/758328)
 
+![Image](https://github.com/TimelineBD/36July/blob/main/Image/18%20July.png?raw=true)
 
 <br>
 
@@ -620,6 +625,9 @@
 - [দেশের খবর : ১৯ জুলাই ২০২৪](https://www.ntvbd.com/video/ntv-news/desher-khobor/desher-khoboe-19-july-2024)
 - [কোটা আন্দোলন: ছেলের জন্য পাত্রী দেখতে গিয়েছিলেন, এসে শুনলেন ছেলে নেই - BBC News বাংলা](https://www.bbc.com/bengali/articles/c51yv1w09n7o)
 
+![](https://github.com/TimelineBD/36July/blob/main/Image/19%20July.png?raw=true)
+
+<br>
 
 ## 🗓️ ২০ জুলাই | শনিবার
 
