@@ -888,9 +888,9 @@
 - ['No dialogue with bullets': Quota reform leaders refuse to sit with the government, say movement will continue](https://www.tbsnews.net/bangladesh/quota-reform-leaders-refuse-sit-government-say-movement-will-continue-902051)
 - [BNP-Jamaat terrorists carry out destruction: Hasan](https://www.daily-sun.com/post/759208)
 - [হাসপাতালে আহতদের দেখার পর সেতু ভবন, দুর্যোগ ব্যবস্থাপনা বিভাগ ও টোল প্লাজা দেখলেন প্রধানমন্ত্রী](https://www.prothomalo.com/bangladesh/5dg9ogxbqq)
-- [https://mzamin.com/news.php?news=120199](https://mzamin.com/news.php?news=120199)
-- [https://mzamin.com/news.php?news=120074](https://mzamin.com/news.php?news=120074)
-- [https://web.archive.org/web/20240727173701/https://www.bbc.com/bengali/articles/crg47ggpenqo](https://web.archive.org/web/20240727173701/https://www.bbc.com/bengali/articles/crg47ggpenqo)
+- [প্রধানমন্ত্রীর সঙ্গে আবু সাঈদের পরিবারের সাক্ষাৎ রোববার](https://mzamin.com/news.php?news=120199)
+- [মাথায় গুলি লেগে যেভাবে লুটিয়ে পড়েছিল মুগ্ধ, প্রিয় ও রিয়াদ](https://mzamin.com/news.php?news=120074)
+- [সারজিস ও হাসনাত ডিবি হেফাজতে, তিন দাবিতে ২৪ ঘণ্টার আল্টিমেটাম শিক্ষার্থীদের](https://web.archive.org/web/20240727173701/https://www.bbc.com/bengali/articles/crg47ggpenqo)
 
 
 <br>
