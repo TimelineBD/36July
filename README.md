@@ -79,8 +79,8 @@
 - [মুক্তিযোদ্ধা কোটা পুনর্বহালের দাবিতে বিক্ষোভ](https://mzamin.com/news.php?news=116585)
 - [কোটা বাতিলের প্রজ্ঞাপন পুনর্বহালের দাবিতে বিক্ষোভ, নতুন কর্মসূচি ঘোষণা](https://www.kalerkantho.com/online/campus-online/2024/07/01/1402275)
 - [সরকারি চাকরিতে কোটা পুনর্বহালের প্রতিবাদে দ্বিতীয় দিনের মতো মানববন্ধন-বিক্ষোভ](https://www.prothomalo.com/bangladesh/district/1o62npp6qn)
-- [Archive: Prothom Alo Video on Quota Movement](https://web.archive.org/web/20240702010708/https://www.prothomalo.com/video/bangladesh/sfetl80osw)
-- [Archive: Bangla News 24 Chittagong News](https://web.archive.org/web/20240702162458/https://www.banglanews24.com/daily-chittagong/news/bd/1357108.details)
+- [কোটা বাতিল: ঢাকা-আরিচা মহাসড়ক অবরোধ](https://web.archive.org/web/20240702010708/https://www.prothomalo.com/video/bangladesh/sfetl80osw)
+- [চবির শিক্ষক, শিক্ষার্থী ও কর্মচারীদের পৃথক আন্দোলন](https://web.archive.org/web/20240702162458/https://www.banglanews24.com/daily-chittagong/news/bd/1357108.details)
 
 ![Image](https://github.com/TimelineBD/36July/blob/main/Image/1%20July.png?raw=true)
 
@@ -1035,9 +1035,9 @@
 - [DB releases 6 quota protest coordinators](https://www.thedailystar.net/news/bangladesh/news/db-releases-6-quota-protest-coordinators-3667051)
 - [বাংলাদেশ সরকারের সাথে ইউরোপীয় ইউনিয়নের আলোচনা স্থগিত কী বার্তা দিচ্ছে? - BBC News বাংলা](https://www.bbc.com/bengali/articles/c4ng1y0kgxno)
 - [অবশেষে জামায়াত-শিবিরকে নিষিদ্ধ করল সরকার](https://www.prothomalo.com/politics/43jn4vxq5d)
-- [ShareBiz: অবশেষে নিষিদ্ধ জামায়াত](https://sharebiz.net/%e0%a6%85%e0%a6%ac%e0%a6%b6%e0%a7%87%e0%a6%b7%e0%a7%87-%e0%a6%a8%e0%a6%bf%e0%a6%b7%e0%a6%bf%e0%a6%a7-%e0%a6%9c%e0%a6%be%e0%a6%ae%e0%a6%be%e0%a6%af%e0%a6%bc%e0%a6%be%e0%a6%a4/)
-- [BDnews24 1](https://bdnews24.com/bangladesh/71d6eda11cdf)
-- [BDnews24 2](https://bdnews24.com/bangladesh/e6660fc6d097)
+- [অবশেষে নিষিদ্ধ জামায়াত](https://sharebiz.net/%e0%a6%85%e0%a6%ac%e0%a6%b6%e0%a7%87%e0%a6%b7%e0%a7%87-%e0%a6%a8%e0%a6%bf%e0%a6%b7%e0%a6%bf%e0%a6%a7-%e0%a6%9c%e0%a6%be%e0%a6%ae%e0%a6%be%e0%a6%af%e0%a6%bc%e0%a6%be%e0%a6%a4/)
+- [UN ‘ready’ to help Bangladesh investigate quota protest violence, fatalities](https://bdnews24.com/bangladesh/71d6eda11cdf)
+- [‘Militants’ who infiltrated quota reform movement shot many at close range, says Quader](https://bdnews24.com/bangladesh/e6660fc6d097)
 
 
 <br>
