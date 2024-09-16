@@ -1089,12 +1089,10 @@
 > `-জাজিরাকে দেয়া সাক্ষাৎকারে জাহাঙ্গীরনগর বিশ্ববিদ্যালয়ের এক শিক্ষার্থী`
 
 ### সংশ্লিষ্ট লিঙ্ক
-- [শহীদ মিনার থেকে এক ফা দাবি](https://bangla.thedailystar.net/news/bangladesh/news-602421)
-
+- [শহীদ মিনার থেকে এক দফা দাবি](https://bangla.thedailystar.net/news/bangladesh/news-602421)
 - [কোটা আন্দোলন: সরকারের সংলাপের আহ্বান প্রত্যাখ্যান আন্দোলনকারীদের - BBC News বাংল](https://www.bbc.com/bengali/live/cgrlrjlj9drt)
-
-[পাদানিতে ঝুলতে থাকা গুলিবিদ্ধ নাফিজ তখনো রিকশার রড ধরে ছিল](https://www.prothomalo.com/bangladesh/912ltfqs3i)
-[রণক্ষেত্র জামালপুর! জামালপুর শিক্ষার্থী ও সরকারি দলের নেতা কর্মীদের ধাওয়া পাল্টা ধাওয়া](https://www.facebook.com/groups/www.brownposting/posts/1040710444348118)
+- [পাদানিতে ঝুলতে থাকা গুলিবিদ্ধ নাফিজ তখনো রিকশার রড ধরে ছিল](https://www.prothomalo.com/bangladesh/912ltfqs3i)
+- [রণক্ষেত্র জামালপুর! জামালপুর শিক্ষার্থী ও সরকারি দলের নেতা কর্মীদের ধাওয়া পাল্টা ধাওয়া](https://www.facebook.com/groups/www.brownposting/posts/1040710444348118)
 
 <br>
 
